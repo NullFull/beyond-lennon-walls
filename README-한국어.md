@@ -16,7 +16,7 @@ This document in other languages: [繁體中文](README-繁體中文.md), [Portu
 
 현장의 홍콩 시민을 후원하고 있는 아래의 단체에 기부해주세요.
 
-- [612 인도주의 구호펀드 (612人道支援基金)](https://www.facebook.com/612Fund/) (PayPal: 612fund@atd.hk)
+- [612 인도주의 구호 펀드 (612人道支援基金)](https://www.facebook.com/612Fund/) (PayPal: 612fund@atd.hk)
 - [Spark Alliance 홍콩 화성동맹](https://www.facebook.com/sparkalliancehk/posts/2042900022663786) (Paypal: hkworkxshop@gmail.com)
 
 현장의 기자를 지원하는 아래의 단체에 기부해주세요.
